@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **- Web Development (HTML, CSS, JavaScript) - Python basics - Cybersecurity (beginner concepts)**
 
-- 📫 How to reach me **sakshi.231083209@vcet.edu.com**
+- 📫 How to reach me **sakshibhaingade@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1a2Z1ZbFMV4Az1xejl43PIWwTigyQcYt5/view?usp=drive_link](https://drive.google.com/file/d/1a2Z1ZbFMV4Az1xejl43PIWwTigyQcYt5/view?usp=drive_link)
 
